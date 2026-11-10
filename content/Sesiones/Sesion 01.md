@@ -12,6 +12,6 @@ Típico de [[Dorian]], siempre hace planes supercomplicados para terminar cagán
 
 Entre todos incluyendo a [[Yagra]], que se columpiaba con una cuerda, le lanzan aceite negro al trol para después quemarlo y lanzarlo al portal.
 
-[[Fresh]] le reclama a [[Duran]] porque casi se mueren y él le dice que esto es común en este bar, que es el espectáculo, que el padre de [[Fresh]] debió haberle dicho si sabía que iba a venir.
+[[Fresh]] le reclama a [[Durnan]] porque casi se mueren y él le dice que esto es común en este bar, que es el espectáculo, que el padre de [[Fresh]] debió haberle dicho si sabía que iba a venir.
 
-Después de eso [[Duran]] les presenta a [[Volo]], pero solo pudo decir hola porque ya era tarde.
+Después de eso [[Durnan]] les presenta a [[Volo]], pero solo pudo decir hola porque ya era tarde.
