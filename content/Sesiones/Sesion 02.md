@@ -2,13 +2,13 @@
 
 [[Rivers]] acompañó a [[Eris]] a su casa en la noche. Al llegar, escucha como su papá le grita e insulta, luego se escuchan golpes y [[Rivers]] solo espera no sean hacia su compañera.
 
-[[Sidon]] ofrece su casa para pasar la noche, [[Fresh]] y [[Dorian]] aceptan. En el camino hacia la casa, ven como unos policías estaban esposando a unos cuates que supuestamente habían matado a otros weyes. Ahí estaban los cadáveres aún. Al parecer eran de las pandillas enemigas que el pueblo tiene.
+[[Sidon]] ofrece su casa para pasar la noche, [[Fresh]] y [[Eryndor]] aceptan. En el camino hacia la casa, ven como unos policías estaban esposando a unos cuates que supuestamente habían matado a otros weyes. Ahí estaban los cadáveres aún. Al parecer eran de las pandillas enemigas que el pueblo tiene.
 
-[[Dorian]] decide llevarse su caballo a la casa de [[Sidon]] la cual está en los barrios pesqueros medio fregados. Al llegar a la casa [[Fresh]] se sorprende por la gran cantidad de hermanos que tiene [[Sidon]], tiene 13 hermanos.
+[[Eryndor]] decide llevarse su caballo a la casa de [[Sidon]] la cual está en los barrios pesqueros medio fregados. Al llegar a la casa [[Fresh]] se sorprende por la gran cantidad de hermanos que tiene [[Sidon]], tiene 13 hermanos.
 
 Son recibidos de una manera muy agradable, cortes y particularmente humilde. [[Fresh]] se siente muy rara porque nunca ha estado en ese tipo de ambientes tan humildes. Pide tomar una ducha y a [[Sidon]] que le dé un cambio de ropas y que esconda extremadamente bien la ropa que traía puesta.
 
-Al amanecer, [[Dorian]] está ansioso y preocupado porque su caballo [[Ruedor]] ya no está. [[Sidon]] le dice que la verdad se le olvidó que estaba allí y que seguramente lo puede conseguir en el mercadito, por piezas hehe. Luego [[Sidon]] manda a su hermano pequeño a que vaya a conseguir información sobre el caballo perdido.
+Al amanecer, [[Eryndor]] está ansioso y preocupado porque su caballo [[Ruedor]] ya no está. [[Sidon]] le dice que la verdad se le olvidó que estaba allí y que seguramente lo puede conseguir en el mercadito, por piezas hehe. Luego [[Sidon]] manda a su hermano pequeño a que vaya a conseguir información sobre el caballo perdido.
 
 Todos se reúnen afuera de [[Escama dragon]] y es muy notable como [[Eris]] tiene el ojo morado de santo madrazo que le metieron en su casa, parece que sufre de violencia familiar. Primero entran a una tienda en contra esquina que es manejada por [[Xoblob]]. Ese wey vende puro humo, es puro pedo y sus artefactos también, papanatas.
 
