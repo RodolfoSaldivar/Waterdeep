@@ -27,3 +27,7 @@ Después de tres días desaparecida, [[Eris]] regresó a casa y enfrentó la fur
 Para evitar el castigo, [[Eris]] confesó que tenía *75 piezas de oro* y se las entregó. Las consiguió por vender información a *Fleshnder información sobre **[[Fresh]]* al periódico donde trabaja.
 
 Así, mientras [[Fresh]] había utilizado los recursos de su familia para ayudar a [[Sidon]], [[Eris]] había convertido la vida privada de su compañera en una noticia rentable.
+
+La mañana siguiente el periódico publica esta información: 
+
+![[periodicoFresh.jpeg|500x750]]
