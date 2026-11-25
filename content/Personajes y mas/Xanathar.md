@@ -1,0 +1,1 @@
+Grupo delictivo con el símbolo del sol combinado con un ojo, algo parecido.
